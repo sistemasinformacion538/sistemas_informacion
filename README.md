@@ -2,4 +2,4 @@
 seminario 2
  Integrantes
  4
- 
+ Luis Soldevilla 
